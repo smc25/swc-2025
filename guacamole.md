@@ -8,6 +8,5 @@
 
 
 ## Instructions
-- Saraid thinks lime juice should go in first
-
+* Peel avocados and put them into a bowl. 
 
